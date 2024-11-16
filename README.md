@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ki-ty
+- 📫 How to reach me: @k.1tt.y on discord
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: iykyk
